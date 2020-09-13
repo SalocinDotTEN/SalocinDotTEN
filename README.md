@@ -11,8 +11,4 @@ Thanks, Microsoft.
 ---
 Anyway, there is some stuff around here, and I have found my calling in coding for good and not for bad.
 
-I am just trying to figure out how to make this into the same look and feel as the [Virtual Place](https://www.salocinten.info)
-
-Or maybe not.
-
-If you are interested in pursuing this field, let me know.
+You may go to the [Virtual Place](https://www.salocinten.info) or if you are interested in FaithTech Kuala Lumpur, [let me know](https://www.salocinten.info/communications).
