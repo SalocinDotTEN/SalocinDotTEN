@@ -14,3 +14,5 @@ Anyway, there is some stuff around here, and I have found my calling in coding f
 I am just trying to figure out how to make this into the same look and feel as the [Virtual Place](https://www.salocinten.info)
 
 Or maybe not.
+
+If you are interested in pursuing this field, let me know.
