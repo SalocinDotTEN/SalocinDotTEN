@@ -7,16 +7,23 @@ The profile page is Microsoft's latest quiet feature. Thanks Microsoft.
 For other information, feel free to [visit the Virtual Place](https://www.salocinten.info "Tap here to go to the Salocin.TEN Virtual Place")
 
 ---
-# Latest eDiary entries...
+## Latest eDiary entries...
 
 <!-- EDIARY-POST-LIST:START -->
 <!-- EDIARY-POST-LIST:END -->
 
 ---
-# Latest Youtuborium entries...
+## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
-# Latest Instagrium entries...
+## Latest Instagrium entries...
+
+---
+## Gitterium statistics...
+
+[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=SalocinDotTEN&hide=java,html,css&theme=dark)](https://github.com/anuraghazra/github-readme-stats)
+
+[![Catalin's GitHub stats](https://github-readme-stats.vercel.app/api?username=SalocinDotTEN&theme=dark)](https://github.com/anuraghazra/github-readme-stats)
