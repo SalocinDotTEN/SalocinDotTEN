@@ -9,10 +9,14 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ---
 # Latest eDiary entries...
 
+<!-- EDIARY-POST-LIST:START -->
+<!-- EDIARY-POST-LIST:END -->
 
 ---
 # Latest Youtuborium entries...
 
+<!-- YOUTUBE-VIDEOS-LIST:START -->
+<!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
 # Latest Instagrium entries...
