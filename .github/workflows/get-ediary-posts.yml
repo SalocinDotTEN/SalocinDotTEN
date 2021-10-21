@@ -1,4 +1,4 @@
-name: Update this repo's README
+name: Put in eDiary posts into the special page.
 
 on:
   schedule:
