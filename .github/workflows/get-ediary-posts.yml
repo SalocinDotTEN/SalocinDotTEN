@@ -12,4 +12,4 @@ jobs:
       - uses: gautamkrishnar/blog-post-workflow@master
         with:
           comment_tag_name: "EDIARY-POST-LIST"
-          feed_list: "https://www.salocinten.info/changelog/rss.xml"
+          feed_list: "https://salocinten.info/feed/"
