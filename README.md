@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
+- [New Year 2022 From Window](https://www.youtube.com/watch?v=wdaiZOWtR4w)
+- [new year2022  from window Part 2](https://www.youtube.com/watch?v=Mrm8X-V-d4w)
 - [bulbul after bathing.](https://www.youtube.com/watch?v=QU3J6ewIdwQ)
 - [Encore of Barcamp Cyberjaya 2021 Presentation](https://www.youtube.com/watch?v=lsCBQhVCFGs)
 - [Amazing flower a day fashion design art fusion.](https://www.youtube.com/watch?v=XGb5vTyAplE)
-- [Building A Web Based Automated Audio Player](https://www.youtube.com/watch?v=fHSY5ytt1hE)
-- [sunbird bathing.](https://www.youtube.com/watch?v=RrKnPHsMZwo)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
