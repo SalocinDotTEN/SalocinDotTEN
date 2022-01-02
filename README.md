@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
+- [New Year 2022 From Window](https://www.youtube.com/watch?v=UeYwoXLgnNU)
 - [#jomlaunch2021 swag unboxing](https://www.youtube.com/watch?v=hPk4QQpZBj8)
 - [Neighbourhood Christmas Carolling 2021](https://www.youtube.com/watch?v=VFkWNDDKgRg)
 - [New Year 2022 From Window](https://www.youtube.com/watch?v=wdaiZOWtR4w)
 - [new year2022  from window Part 2](https://www.youtube.com/watch?v=Mrm8X-V-d4w)
-- [bulbul after bathing.](https://www.youtube.com/watch?v=QU3J6ewIdwQ)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
