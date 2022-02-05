@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
+- [Fondue pouring at care group Christmas dinner.](https://www.youtube.com/watch?v=07bJeoNvBUw)
 - [New Year 2022 From Window](https://www.youtube.com/watch?v=UeYwoXLgnNU)
 - [#jomlaunch2021 swag unboxing](https://www.youtube.com/watch?v=hPk4QQpZBj8)
 - [Neighbourhood Christmas Carolling 2021](https://www.youtube.com/watch?v=VFkWNDDKgRg)
 - [Yellow vented bulbul after bathing.](https://www.youtube.com/watch?v=QU3J6ewIdwQ)
-- [Encore of Barcamp Cyberjaya 2021 Presentation](https://www.youtube.com/watch?v=lsCBQhVCFGs)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
