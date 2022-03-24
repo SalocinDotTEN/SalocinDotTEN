@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
+- [Strange scam call +35800000000 2022-03-17 17-07-09](https://www.youtube.com/watch?v=HrHUBYX7EG4)
 - [chap goh mei 2022 fireworks disturbing the peace.](https://www.youtube.com/watch?v=zBlGxJ2rleo)
 - [Sam Shamoun Visits Jesus Son of Mary Islamic Center Tampa Florida](https://www.youtube.com/watch?v=ms6c2i4w7-A)
 - [Fondue pouring at care group Christmas dinner.](https://www.youtube.com/watch?v=07bJeoNvBUw)
 - [New Year 2022 From Window](https://www.youtube.com/watch?v=UeYwoXLgnNU)
-- [#jomlaunch2021 swag unboxing](https://www.youtube.com/watch?v=hPk4QQpZBj8)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
