@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
+- [24 September 2023](https://www.youtube.com/watch?v=Yrfbi_9DToM)
 - [behind the scenes deciding ge15 agong](https://www.youtube.com/watch?v=0Ac3eWfn-zg)
 - [Anwar Ibrahim and Dr Wan azizah](https://www.youtube.com/watch?v=CWK6Tylhotw)
 - [9 August 2023](https://www.youtube.com/watch?v=vwVQMsDdN-o)
 - [6 August 2023](https://www.youtube.com/watch?v=xmP1k-4P4IE)
-- [3 August 2023](https://www.youtube.com/watch?v=4XfWAQhOTo0)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
