@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
+- [More than Conquerors blitz](https://www.youtube.com/watch?v=1Ib6DIx6nO4)
 - [500 subscriber milestone achieved!](https://www.youtube.com/watch?v=uGtSHqQS5jw)
 - [Dahler Mehndi viral song live Arts on The Move.](https://www.youtube.com/watch?v=oa4QZJoN8rs)
 - [2 October 2023](https://www.youtube.com/watch?v=3rT3AVgiN8M)
 - [24 September 2023](https://www.youtube.com/watch?v=Yrfbi_9DToM)
-- [behind the scenes deciding ge15 agong](https://www.youtube.com/watch?v=0Ac3eWfn-zg)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
