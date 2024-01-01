@@ -21,7 +21,7 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
-- [new year fireworks 2024](https://www.youtube.com/watch?v=kla20C0a7dw)
+- [New Year fireworks 2024.](https://www.youtube.com/watch?v=kla20C0a7dw)
 - [More than Conquerors blitz](https://www.youtube.com/watch?v=1Ib6DIx6nO4)
 - [500 subscriber milestone achieved!](https://www.youtube.com/watch?v=uGtSHqQS5jw)
 - [Dahler Mehndi viral song live Arts on The Move.](https://www.youtube.com/watch?v=oa4QZJoN8rs)
