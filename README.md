@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
+- [Zionist story](https://www.youtube.com/watch?v=PvbLTiyO6-M)
 - [Scam alert video](https://www.youtube.com/watch?v=6dqgc5IMofc)
 - [Firefly to Langkawi from SZB startup June 2022](https://www.youtube.com/watch?v=JIl46HTDmik)
 - [Wesak Day procession 2023](https://www.youtube.com/watch?v=G-NLwijotQA)
 - [ideal girlfriend although I&#39;ll be suspect of the pringles she is stuffing me with.](https://www.youtube.com/watch?v=V90M2MpEdME)
-- [New Year fireworks 2024.](https://www.youtube.com/watch?v=kla20C0a7dw)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
