@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
+- [chempaka Buddhist lodge wesak day float processional 2024](https://www.youtube.com/watch?v=CbMk1ZR5amk)
+- [genting skyworlds digital show Feb 2020](https://www.youtube.com/watch?v=NDCKEAFOVJ4)
+- [genting skyworlds Chinese new year show 2020](https://www.youtube.com/watch?v=2uRliGmvU80)
+- [zebra dove on the air-conditioning](https://www.youtube.com/watch?v=Qa6mBvZohTc)
 - [Zionist story](https://www.youtube.com/watch?v=PvbLTiyO6-M)
-- [Scam alert video](https://www.youtube.com/watch?v=6dqgc5IMofc)
-- [Firefly to Langkawi from SZB startup June 2022](https://www.youtube.com/watch?v=JIl46HTDmik)
-- [Wesak Day procession 2023](https://www.youtube.com/watch?v=G-NLwijotQA)
-- [ideal girlfriend although I&#39;ll be suspect of the pringles she is stuffing me with.](https://www.youtube.com/watch?v=V90M2MpEdME)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
