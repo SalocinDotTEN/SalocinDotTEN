@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
+- [youtube new augmented reality. no chroma key needed.](https://www.youtube.com/watch?v=0PfcqOXjx0I)
 - [chempaka Buddhist lodge wesak day float processional 2024](https://www.youtube.com/watch?v=CbMk1ZR5amk)
 - [genting skyworlds digital show Feb 2020](https://www.youtube.com/watch?v=NDCKEAFOVJ4)
 - [genting skyworlds Chinese new year show 2020](https://www.youtube.com/watch?v=2uRliGmvU80)
 - [zebra dove on the air-conditioning](https://www.youtube.com/watch?v=Qa6mBvZohTc)
-- [Zionist story](https://www.youtube.com/watch?v=PvbLTiyO6-M)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
