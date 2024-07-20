@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
+- [randomizer mcq pen](https://www.youtube.com/watch?v=QzQfowAWRpo)
 - [Facing a notification that you cannot send or receive emails on GMail?](https://www.youtube.com/watch?v=inpuDP8WTgM)
 - [they did a really good keynote soundtrack. like the first session of a developer conference.](https://www.youtube.com/watch?v=3xYnQ40JckY)
 - [youtube new augmented reality. no chroma key needed.](https://www.youtube.com/watch?v=0PfcqOXjx0I)
 - [chempaka Buddhist lodge wesak day float processional 2024](https://www.youtube.com/watch?v=CbMk1ZR5amk)
-- [genting skyworlds digital show Feb 2020](https://www.youtube.com/watch?v=NDCKEAFOVJ4)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
