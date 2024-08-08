@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
+- [NECF Fasting and Prayer Reflections Day 2](https://www.youtube.com/watch?v=3EI8pZ1WFpE)
 - [40 day fasting and prayer day 1](https://www.youtube.com/watch?v=k6I3uN-qZ-k)
 - [randomizer mcq pen](https://www.youtube.com/watch?v=QzQfowAWRpo)
 - [Facing a notification that you cannot send or receive emails on GMail?](https://www.youtube.com/watch?v=inpuDP8WTgM)
 - [they did a really good keynote soundtrack. like the first session of a developer conference.](https://www.youtube.com/watch?v=3xYnQ40JckY)
-- [youtube new augmented reality. no chroma key needed.](https://www.youtube.com/watch?v=0PfcqOXjx0I)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
