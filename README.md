@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
+- [Fasting and Prayer Day 11 Reflections](https://www.youtube.com/watch?v=JP6HAratjoM)
 - [Fasting and prayer 2024 day 10 reflections](https://www.youtube.com/watch?v=zRBjf8O3tp0)
 - [Fast and Prayer 2024 Day 9 Reflections](https://www.youtube.com/watch?v=fP58TfZl3wA)
 - [Fast and Prayer 2024 Day 8 Reflections and Thoughts](https://www.youtube.com/watch?v=85hprCZu0KQ)
 - [Fasting and Prayer 2024 Day 7 Reflections](https://www.youtube.com/watch?v=BztQD6BG2YA)
-- [Prayer and Fasting Day 6 Reflections](https://www.youtube.com/watch?v=k-pHP6E_i9c)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
