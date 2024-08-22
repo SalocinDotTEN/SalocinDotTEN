@@ -21,7 +21,7 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
-- [Fasting and prayer ay 15 reflections](https://www.youtube.com/watch?v=IaZ2C3VSMx8)
+- [Fasting and prayer day 15 reflections](https://www.youtube.com/watch?v=IaZ2C3VSMx8)
 - [Fasting and prayer day 14 reflections](https://www.youtube.com/watch?v=MyyYS7gb1Ho)
 - [Fasting and prayer day 13 reflections](https://www.youtube.com/watch?v=GSiQK2AATIY)
 - [Fasting and prayer day 12 reflections](https://www.youtube.com/watch?v=_v-a9dOjlck)
