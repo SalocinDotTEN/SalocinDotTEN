@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
+- [Fast and prayer Day 18 reflections](https://www.youtube.com/watch?v=7lOgn0oySPY)
 - [Fast and prayer Day 17 reflections](https://www.youtube.com/watch?v=LqvQJqaJp4o)
 - [Fast and prayer Day 16 reflections](https://www.youtube.com/watch?v=U1k2pX93yiE)
 - [Fasting and prayer day 15 reflections](https://www.youtube.com/watch?v=IaZ2C3VSMx8)
 - [Fasting and prayer day 14 reflections](https://www.youtube.com/watch?v=MyyYS7gb1Ho)
-- [Fasting and prayer day 13 reflections](https://www.youtube.com/watch?v=GSiQK2AATIY)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
