@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
+- [happy independence day Malaysia.](https://www.youtube.com/watch?v=gK8DzkTeO10)
 - [Fast and prayer Day 24 reflections.](https://www.youtube.com/watch?v=JnW9DeAi8jI)
 - [Fast and prayer Day 23 reflections.](https://www.youtube.com/watch?v=YEYx3NfVzhg)
 - [Fast and prayer Day 22 reflections](https://www.youtube.com/watch?v=ioWysksOcrQ)
 - [Fast and prayer Day 21 reflections](https://www.youtube.com/watch?v=ez2dGCGeRc8)
-- [Fast and prayer Day 20 reflections](https://www.youtube.com/watch?v=lxz2YBcwpfA)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
