@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
+- [Fast and prayer Day 33 reflections.](https://www.youtube.com/watch?v=axDQRKxcXkY)
 - [Fast and prayer Day 32 reflections.](https://www.youtube.com/watch?v=A5ftW6X9Dbw)
 - [Fast and prayer Day 31 reflections.](https://www.youtube.com/watch?v=DLqYHIHhoaU)
 - [Fast and prayer Day 30 reflections.](https://www.youtube.com/watch?v=D9RzisAHLKE)
 - [Fast and prayer Day 29 reflections.](https://www.youtube.com/watch?v=UdGWahlo0XM)
-- [Fast and prayer Day 28 reflections.](https://www.youtube.com/watch?v=KPyNTJCLIsg)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
