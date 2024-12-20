@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
+- [Some geektopia thing.](https://www.youtube.com/watch?v=INbRoYUrx-8)
 - [lion dance midvalley January 2017](https://www.youtube.com/watch?v=Ldswe6MabY8)
 - [Fast and prayer Final Day reflections.](https://www.youtube.com/watch?v=_oI4XK_vakU)
 - [Fast and prayer Day 39 reflections.](https://www.youtube.com/watch?v=vz1KUabQuv0)
 - [Fast and prayer Day 38 reflections.](https://www.youtube.com/watch?v=HtY5XVrhc74)
-- [Fast and prayer Day 37 reflections.](https://www.youtube.com/watch?v=zheoBGNbySM)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
