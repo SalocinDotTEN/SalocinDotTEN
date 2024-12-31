@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
+- [gamuda g.e.t. tour&lpar;2&rpar;](https://www.youtube.com/watch?v=77PMUbv53Ns)
+- [gamuda g.e.t. tour&lpar;3&rpar;](https://www.youtube.com/watch?v=jlaOEz_oBC8)
+- [gamuda g.e.t. tour&lpar;1&rpar;](https://www.youtube.com/watch?v=NidPIOyWB0E)
+- [New Year 2025 medley](https://www.youtube.com/watch?v=TBk9vxp_qNc)
 - [Some geektopia thing.](https://www.youtube.com/watch?v=INbRoYUrx-8)
-- [lion dance midvalley January 2017](https://www.youtube.com/watch?v=Ldswe6MabY8)
-- [Fast and prayer Final Day reflections.](https://www.youtube.com/watch?v=_oI4XK_vakU)
-- [Fast and prayer Day 39 reflections.](https://www.youtube.com/watch?v=vz1KUabQuv0)
-- [Fast and prayer Day 38 reflections.](https://www.youtube.com/watch?v=HtY5XVrhc74)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
