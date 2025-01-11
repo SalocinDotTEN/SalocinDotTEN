@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
-- [Building a Web based automated audio player.](https://www.youtube.com/watch?v=9OpWW3MCkgU)
 - [gamuda g.e.t. tour&lpar;2&rpar;](https://www.youtube.com/watch?v=77PMUbv53Ns)
 - [gamuda g.e.t. tour&lpar;3&rpar;](https://www.youtube.com/watch?v=jlaOEz_oBC8)
 - [gamuda g.e.t. tour&lpar;1&rpar;](https://www.youtube.com/watch?v=NidPIOyWB0E)
 - [New Year 2025 medley](https://www.youtube.com/watch?v=TBk9vxp_qNc)
+- [Some geektopia thing.](https://www.youtube.com/watch?v=INbRoYUrx-8)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
