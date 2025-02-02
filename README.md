@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
+- [11 January 2025](https://www.youtube.com/watch?v=vzA6MieUl6o)
 - [YB Lim Yi Wei speaks out against the highway project](https://www.youtube.com/watch?v=JaU9K9lvvCU)
 - [gamuda g.e.t. tour&lpar;2&rpar;](https://www.youtube.com/watch?v=77PMUbv53Ns)
 - [gamuda g.e.t. tour&lpar;3&rpar;](https://www.youtube.com/watch?v=jlaOEz_oBC8)
 - [gamuda g.e.t. tour&lpar;1&rpar;](https://www.youtube.com/watch?v=NidPIOyWB0E)
-- [New Year 2025 medley](https://www.youtube.com/watch?v=TBk9vxp_qNc)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
