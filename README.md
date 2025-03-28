@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
-- [11 January 2025](https://www.youtube.com/watch?v=vzA6MieUl6o)
-- [YB Lim Yi Wei speaks out against the highway project](https://www.youtube.com/watch?v=JaU9K9lvvCU)
-- [gamuda g.e.t. tour&lpar;2&rpar;](https://www.youtube.com/watch?v=77PMUbv53Ns)
-- [gamuda g.e.t. tour&lpar;3&rpar;](https://www.youtube.com/watch?v=jlaOEz_oBC8)
-- [gamuda g.e.t. tour&lpar;1&rpar;](https://www.youtube.com/watch?v=NidPIOyWB0E)
+- [Geekcamp Malaysia 2017 unconference agenda.](https://www.youtube.com/watch?v=ab09-pZse1Q)
+- [Geekcamp Malaysia 2017](https://www.youtube.com/watch?v=TlH9_UXf3iY)
+- [Asus Zenvolution Phone launch 2016](https://www.youtube.com/watch?v=hdJllg44rHM)
+- [Women in Tech panel at FOSS my 2016](https://www.youtube.com/watch?v=q3mKKoz5IDQ)
+- [Asus Zenvolution phone launch 2016](https://www.youtube.com/watch?v=EGffnrPPBKM)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
