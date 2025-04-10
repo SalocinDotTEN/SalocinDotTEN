@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
+- [10 April 2025](https://www.youtube.com/watch?v=9lVWJ8zXhUs)
+- [10 April 2025](https://www.youtube.com/watch?v=jXFfYsdhF1o)
 - [Geekcamp Malaysia 2017 unconference agenda.](https://www.youtube.com/watch?v=ab09-pZse1Q)
 - [Geekcamp Malaysia 2017](https://www.youtube.com/watch?v=TlH9_UXf3iY)
 - [Asus Zenvolution Phone launch 2016](https://www.youtube.com/watch?v=hdJllg44rHM)
-- [Women in Tech panel at FOSS my 2016](https://www.youtube.com/watch?v=q3mKKoz5IDQ)
-- [Asus Zenvolution phone launch 2016](https://www.youtube.com/watch?v=EGffnrPPBKM)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
