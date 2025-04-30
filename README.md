@@ -4,17 +4,17 @@
 
 The profile page is Microsoft's latest quiet feature. Thanks Microsoft.
 
-For other information, feel free to [visit the Virtual Place](https://www.salocinten.info "Tap here to go to the Salocin.TEN Virtual Place")
+For other information, feel free to [visit the Virtual Place](https://www.salocinten.online "Tap here to go to the Salocin.TEN Virtual Place")
 
 ---
 ## Latest eDiary entries...
 
 <!-- EDIARY-POST-LIST:START -->
-- [I think we’re back online.](https://salocinten.info/2021/10/08/i-think-were-back-online/)
-- [The Prayer Song for the Nation..](https://salocinten.info/2021/09/20/prayer-song-nation/)
-- [Mr. Raskin on the Capitol Insurrection](https://salocinten.info/2021/09/20/mr-raskin-capitol-insurrection/)
-- [Another New Section…](https://salocinten.info/2021/03/20/another-new-section/)
-- [No Year 2021 Predictions.](https://salocinten.info/2020/12/01/no-year-2021-predictions/)
+- [I think we’re back online.](https://salocinten.online/2021/10/08/i-think-were-back-online/)
+- [The Prayer Song for the Nation..](https://salocinten.online/2021/09/20/prayer-song-nation/)
+- [Mr. Raskin on the Capitol Insurrection](https://salocinten.online/2021/09/20/mr-raskin-capitol-insurrection/)
+- [Another New Section…](https://salocinten.online/2021/03/20/another-new-section/)
+- [No Year 2021 Predictions.](https://salocinten.online/2020/12/01/no-year-2021-predictions/)
 <!-- EDIARY-POST-LIST:END -->
 
 ---
