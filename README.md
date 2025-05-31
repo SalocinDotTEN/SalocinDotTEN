@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
-- [Chempaka Buddhist lodge Wesak procession 2025](https://www.youtube.com/watch?v=0_Qvz_sPLYM)
-- [10 April 2025](https://www.youtube.com/watch?v=9lVWJ8zXhUs)
-- [10 April 2025](https://www.youtube.com/watch?v=jXFfYsdhF1o)
-- [Geekcamp Malaysia 2017 unconference agenda.](https://www.youtube.com/watch?v=ab09-pZse1Q)
-- [Geekcamp Malaysia 2017](https://www.youtube.com/watch?v=TlH9_UXf3iY)
+- [test shot of ceiling fan for streaming software](https://www.youtube.com/watch?v=rJ-qypgr3so)
+- [Foss my 2015](https://www.youtube.com/watch?v=4UcsXNjSXds)
+- [Foss.my 2016](https://www.youtube.com/watch?v=v8mBk5tnrNQ)
+- [Awana Skyway journey 30 June 2024](https://www.youtube.com/watch?v=g3HQGT9CkBg)
+- [Awana Skyway journey 30 June 2024](https://www.youtube.com/watch?v=2LvH4LZIy48)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
