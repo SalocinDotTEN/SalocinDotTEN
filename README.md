@@ -21,10 +21,10 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
-- [test shot of ceiling fan for streaming software](https://www.youtube.com/shorts/rJ-qypgr3so)
+- [test shot of ceiling fan for streaming software](https://www.youtube.com/watch?v=rJ-qypgr3so)
 - [Foss my 2015](https://www.youtube.com/watch?v=4UcsXNjSXds)
 - [Foss.my 2016](https://www.youtube.com/watch?v=v8mBk5tnrNQ)
-- [foss.my 2016](https://www.youtube.com/shorts/nhSV2ZMQi88)
+- [foss.my 2016](https://www.youtube.com/watch?v=nhSV2ZMQi88)
 - [Awana Skyway journey 30 June 2024](https://www.youtube.com/watch?v=g3HQGT9CkBg)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
