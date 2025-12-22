@@ -37,3 +37,5 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=SalocinDotTEN&hide=java,html,css&theme=dark)](https://github.com/anuraghazra/github-readme-stats)
 
 [![Catalin's GitHub stats](https://github-readme-stats.vercel.app/api?username=SalocinDotTEN&theme=dark)](https://github.com/anuraghazra/github-readme-stats)
+
+https://www.youtube.com/watch?v=HfJwezWWu08
