@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
+- [24 drum performance at inti 2026 chinese new year dinner.](https://www.youtube.com/watch?v=4CyYUt8RdEI)
+- [Calligraphy fan painting at inti networking dinner 2026.](https://www.youtube.com/watch?v=B96FJygoi80)
 - [Diwali fireworks from a hotel window](https://www.youtube.com/watch?v=tjwwQ5sr2yk)
 - [Diwali fireworks from a hotel window part 2](https://www.youtube.com/watch?v=RePx5f0VtHc)
 - [test shot of ceiling fan for streaming software](https://www.youtube.com/shorts/rJ-qypgr3so)
-- [Foss my 2015](https://www.youtube.com/watch?v=4UcsXNjSXds)
-- [Foss.my 2016](https://www.youtube.com/watch?v=v8mBk5tnrNQ)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
