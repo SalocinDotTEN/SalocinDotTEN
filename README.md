@@ -21,11 +21,11 @@ For other information, feel free to [visit the Virtual Place](https://www.saloci
 ## Latest Youtuborium entries...
 
 <!-- YOUTUBE-VIDEOS-LIST:START -->
+- [One Malaysia students performance](https://www.youtube.com/watch?v=BcMlGUukGnQ)
 - [iBridge Camp 2019 slow motion rain.](https://www.youtube.com/watch?v=vpGPX2zfrO4)
 - [Mulan performance at inti dinner 2026](https://www.youtube.com/watch?v=XwplJ-QBBGE)
 - [24 drum performance at inti 2026 chinese new year dinner.](https://www.youtube.com/watch?v=4CyYUt8RdEI)
 - [Calligraphy fan painting at inti networking dinner 2026.](https://www.youtube.com/watch?v=B96FJygoi80)
-- [Diwali fireworks from a hotel window](https://www.youtube.com/watch?v=tjwwQ5sr2yk)
 <!-- YOUTUBE-VIDEOS-LIST:END -->
 
 ---
